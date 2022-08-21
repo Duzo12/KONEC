@@ -1,0 +1,2 @@
+# KONEC
+Kmal bo konc
